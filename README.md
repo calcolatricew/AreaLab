@@ -1,1 +1,1 @@
-ambientato nell'inferno, deve salire verso l'inferno, devi capire quali indicazioni sono vere e quali sono false
+ambientato nell'inferno, deve salire verso il paradiso, devi capire quali indicazioni sono vere e quali sono false, alla fine si scopre che il suo compagno john informatics era in realtà il lucifero e ti ha condotto verso gli abissi dell'inferno. parte una bossfight con di sottofondo la musica "Soul Of Cinder" -Akira Toyoka
